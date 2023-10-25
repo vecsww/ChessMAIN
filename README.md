@@ -7,3 +7,4 @@ Nie?!
 Zaraz będzie!
 Chuj ci w dupe!
 Pozdrawiam! ELO!
+шошо
